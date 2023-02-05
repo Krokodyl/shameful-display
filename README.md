@@ -5,7 +5,7 @@ Already contacted to take down the Dokapon listings.\
 Still selling Koi wa Balance
 
 endpro86 - Ebay seller\
-Selling the patched games Dokapon Gaiden and Dokapon 3-2-1
+Selling the patched games Dokapon Gaiden, Dokapon 3-2-1 and Koi wa Balance
 
 ## Disclaimer
 
